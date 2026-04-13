@@ -54,8 +54,6 @@ $\color{#b893e5}{\textsf{DO NOT copy or inspo from ANY of my ponies ‎ ‎   �
 $\color{#b893e5}{\textsf{whisp 2 int! i love 2 chat but i miss whisps often ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ ‎  ‎ ‎ }}$</h4>
 <br> 
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
-  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ <br>
-
 <h4 align="left">$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ i'm jst one alter in a system}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ if u friend me on pt, u may not always b talking 2 me}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ iffy w/ sourcemates so ask b4 talking abt source stuff. source doubles dni unless completely detached}}$<br>
