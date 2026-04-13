@@ -1,13 +1,17 @@
+<div align="center">
 making something for my pookie please ignore this if u see this or i epxlode and ie ad aasdn ansakjdfgsdjfgsdfh
 
 <p align="center">
    <img src="https://i.postimg.cc/fRH5BwBg/nightfury-thing.png"
   width="50"/>
-<h6 align="center"><strong><i>$\color{#715390}{\textsf{Night Fury.}}$</i></i></strong> <br>$\color{#9175b2}{\textsf{Speed: Unknown. Size: Unknown. }}$<br>
+<h6 align="center">$\color{#715390}{\textsf{Night Fury.}}$ <br>$\color{#9175b2}{\textsf{Speed: Unknown. Size: Unknown. }}$<br>
 $\color{#9175b2}{\textsf{The unholy offspring of lightning and death itself. Never engage this dragon. Your only chance: hide and pray it does not find you.}}$</h6>
 <p align="center"> 
 <img src="https://i.postimg.cc/W4GLdq21/div1.png"
   width="850"/>
+
+[syswide info](https://www.patreon.com/ventiirl/about) ⭑ [prns.cc](https://pronouns.cc/@zep/wyvern) ⭑ creds: [1](https://www.tumblr.com/thecutestgrotto/774039070046404608/please-i-beg-you-how-to-train-your-dragon?source=share) [2](https://x.com/PipePie_) [3](https://www.instagram.com/miyo_wwpi/)
+   
 <p align="center"> 
 <img src="https://i.postimg.cc/7LscG3Fq/div2.png"
   width="500"/>
@@ -16,6 +20,10 @@ $\color{#9175b2}{\textsf{The unholy offspring of lightning and death itself. Nev
   height="450"
   align="right"/>
 
+<h5 align="left">$\color{#b893e5}{\textsf{˚⟡ ˖ ࣪  wyvern / wemmbu / storm  ₊˚⊹ ˙  ~  nicknames encouraged}}$<br>
+$\color{#b893e5}{\textsf{u can make up whtvr pronouns 4 me, jst don't use they/them}}$<br>
+$\color{#b893e5}{\textsf{bodily 21. don't try2 add me if yr under 16}}$<br>
+$\color{#b893e5}{\textsf{mascandrogyne + polysexual}}$</h5>
 <h3 align="center"><strong><i>ᶻ 𝗓 𐰁 ZAM ★ !</i></strong><br><a href="https://hits.sh/github.com/convexic/"><img alt="Hits" src="https://hits.sh/github.com/convexic.svg?label=visits&color=491e59&labelColor=f25356"/></a></h3>
 <p align="center">23+ year old genderqueer silly (he/they)</br><img src="https://emoji.lgbt/assets/svg/ace-flag.svg" height="65"> <img src="https://emoji.lgbt/assets/svg/aro-flag.svg" height="65"> 
 <br>
