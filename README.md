@@ -36,9 +36,9 @@ $\color{#b893e5}{\textsf{guiding.light on disc if i miss yr whisp ‎ ‎ ‎ �
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
   ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
 
-   <img src="https://i.postimg.cc/nc7wnjpP/mutinyagainsquare.png" width="50%" align="left"/>
+   <img src="https://i.postimg.cc/R0G0z66p/mutinyagainsquareextra.png" width="50%" align="left"/>
 &nbsp; &nbsp; &nbsp; &nbsp;
-   <img src="https://i.postimg.cc/8zmKr2F9/asset3.png" 
+   <img src="https://i.postimg.cc/1zK8572t/asset3bigger.png" 
       width="30%" 
       align="center"/> 
 
