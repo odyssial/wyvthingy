@@ -17,24 +17,28 @@ $\color{#9175b2}{\textsf{The unholy offspring of lightning and death itself. Nev
   width="500"/>
    <br>
 <img src="https://i.postimg.cc/28SzgGCM/wemmburemovebg.png"
-  height="450"
+  height="400"
   align="right"/>
 <br> 
 
-<h3 align="left">$\color{#b893e5}{\textsf{˚⟡ ˖ ࣪  wyvern / wemmbu / storm  ₊˚⊹ ˙  ~  nicknames encouraged}}$<br>
+<h4 align="left">$\color{#b893e5}{\textsf{˚⟡ ˖ ࣪  wyvern / wemmbu / storm  ₊˚⊹ ˙  ~  nicknames encouraged}}$<br>
 $\color{#b893e5}{\textsf{u can make up whtvr pronouns 4 me, jst don't use they/them}}$<br>
 $\color{#b893e5}{\textsf{bodily 21. don't try2 add me if yr under 16}}$<br>
-$\color{#b893e5}{\textsf{mascandrogyne + polysexual}}$</h3>
+$\color{#b893e5}{\textsf{mascandrogyne + polysexual}}$</h4>
 
-<h3 align="right">$\color{#b893e5}{\textsf{join my smp c:}}$<br>
+<h4 align="right">$\color{#b893e5}{\textsf{join my smp c:}}$<br>
 $\color{#b893e5}{\textsf{adults only, whisp for info.}}$<br>
-$\color{#b893e5}{\textsf{guiding.light on disc if i miss yr whisp}}$</h3>
+$\color{#b893e5}{\textsf{guiding.light on disc if i miss yr whisp}}$</h4>
 
  <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=c4ip3y4ortb93d1spfy2xr1jm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5c2f75&bar_color_cover=false">
   </a>
-
-<img src="https://i.postimg.cc/nc7wnjpP/mutinyagainsquare.png" height="450" align="left"/> <img src="https://i.postimg.cc/8zmKr2F9/asset3.png" height="50" align="right"/> 
+  
+<p align="center"> 
+   <img src="https://i.postimg.cc/nc7wnjpP/mutinyagainsquare.png" width="50%"/>
+&nbsp; &nbsp; &nbsp; &nbsp;
+   <img src="https://i.postimg.cc/8zmKr2F9/asset3.png" width="50%"/> 
+</p>
   
 <br> 
 
