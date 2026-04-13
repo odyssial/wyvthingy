@@ -33,12 +33,17 @@ $\color{#b893e5}{\textsf{guiding.light on disc if i miss yr whisp ‎ ‎ ‎ �
  <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=c4ip3y4ortb93d1spfy2xr1jm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5c2f75&bar_color_cover=false">
   </a>
-sadfkjbsahmkdghksdfkjgkajsdfbgnhkjshdbfgkjhsdfjkhfgh<br>
-fkjsdhgkjhsdkfjhgksjdgh<br>
-sdfkjgijsdh<br>
-lkgfsjfldgjkjdgh<br>
-lkgfsjfldgjkjdgh<br>
-lkgfsjfldgjkjdgh<br>
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
+  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ <br>
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
+ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
 
 
    <img src="https://i.postimg.cc/nc7wnjpP/mutinyagainsquare.png" width="50%" align="left"/>
