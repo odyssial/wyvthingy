@@ -11,7 +11,7 @@ $\color{#9175b2}{\textsf{The unholy offspring of lightning and death itself. Nev
   width="500"/>
    <br>
 <img src="https://i.postimg.cc/28SzgGCM/wemmburemovebg.png"
-  height="500"
+  height="450"
   align="right"/>
 
 <h3 align="center"><strong><i>ᶻ 𝗓 𐰁 ZAM ★ !</i></strong><br><a href="https://hits.sh/github.com/convexic/"><img alt="Hits" src="https://hits.sh/github.com/convexic.svg?label=visits&color=491e59&labelColor=f25356"/></a></h3>
