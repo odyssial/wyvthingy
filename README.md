@@ -3,7 +3,7 @@
 <p align="center">
    <img src="https://i.postimg.cc/fRH5BwBg/nightfury-thing.png"
   width="50"/>
-<h5 align+"center">$\color{#715390}{\textsf{Night Fury.}}$ </h5>
+<h4 align+"center">$\color{#715390}{\textsf{Night Fury.}}$ </h4>
 <h6 align="center">$\color{#9175b2}{\textsf{Speed: Unknown. Size: Unknown. }}$<br>
 $\color{#9175b2}{\textsf{The unholy offspring of lightning and death itself. Never engage this dragon. Your only chance: hide and pray it does not find you.}}$</h6>
 <p align="center"> 
