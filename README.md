@@ -1,5 +1,4 @@
 <div align="center">
-making something for my pookie please ignore this if u see this or i epxlode and ie ad aasdn ansakjdfgsdjfgsdfh
 
 <p align="center">
    <img src="https://i.postimg.cc/fRH5BwBg/nightfury-thing.png"
