@@ -19,34 +19,26 @@ $\color{#9175b2}{\textsf{The unholy offspring of lightning and death itself. Nev
 <img src="https://i.postimg.cc/28SzgGCM/wemmburemovebg.png"
   height="450"
   align="right"/>
+<br> 
 
-<h5 align="left">$\color{#b893e5}{\textsf{˚⟡ ˖ ࣪  wyvern / wemmbu / storm  ₊˚⊹ ˙  ~  nicknames encouraged}}$<br>
+<h3 align="left">$\color{#b893e5}{\textsf{˚⟡ ˖ ࣪  wyvern / wemmbu / storm  ₊˚⊹ ˙  ~  nicknames encouraged}}$<br>
 $\color{#b893e5}{\textsf{u can make up whtvr pronouns 4 me, jst don't use they/them}}$<br>
 $\color{#b893e5}{\textsf{bodily 21. don't try2 add me if yr under 16}}$<br>
-$\color{#b893e5}{\textsf{mascandrogyne + polysexual}}$</h5>
-<h3 align="center"><strong><i>ᶻ 𝗓 𐰁 ZAM ★ !</i></strong><br><a href="https://hits.sh/github.com/convexic/"><img alt="Hits" src="https://hits.sh/github.com/convexic.svg?label=visits&color=491e59&labelColor=f25356"/></a></h3>
-<p align="center">23+ year old genderqueer silly (he/they)</br><img src="https://emoji.lgbt/assets/svg/ace-flag.svg" height="65"> <img src="https://emoji.lgbt/assets/svg/aro-flag.svg" height="65"> 
-<br>
+$\color{#b893e5}{\textsf{mascandrogyne + polysexual}}$</h3>
+
+<h3 align="right">$\color{#b893e5}{\textsf{join my smp c:}}$<br>
+$\color{#b893e5}{\textsf{adults only, whisp for info.}}$<br>
+$\color{#b893e5}{\textsf{guiding.light on disc if i miss yr whisp}}$</h3>
+
  <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=c4ip3y4ortb93d1spfy2xr1jm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5c2f75&bar_color_cover=false">
   </a>
-</p>
+
+<img src="https://i.postimg.cc/nc7wnjpP/mutinyagainsquare.png" height="450" align="left"/> <img src="https://i.postimg.cc/8zmKr2F9/asset3.png" height="50" align="right"/> 
   
+<br> 
 
+<p align="center"> 
+<img src="https://i.postimg.cc/W4GLdq21/div1.png"
+  width="850"/>
 
-<p align="center"><b>NEVER COPY MY PONIES</b><br>
-please do note that i'm typically sat with friends and don't react to others when with them. when i'm alone, feel free to int + sit with me! i am not guaranteed to reply, but whispering will help.</p>
-
-
-<p align="center">
-    <b>BUSY STATUS: Offtab!<br>SLEEPING PONY: Asleep!</b> </p>
-
-
-<p align="center"><img height="100" src="https://i.postimg.cc/j2yXM2nt/div.png"></p>
-
-<p align="center"><b>CREDITS</b><br>inspo: @dubiousswan . pfp: ItzAvo_ on twt<br>main illust: cofftwo on twt . divider: tadoyakis on twt</p>
-
-<p align="center">
-  <img src="https://i.postimg.cc/2jZVS6bk/bottom_border.png"
-    width="740"
-    /></p>
