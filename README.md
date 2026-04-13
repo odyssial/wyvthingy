@@ -36,9 +36,9 @@ $\color{#b893e5}{\textsf{guiding.light on disc if i miss yr whisp ‎ ‎ ‎ �
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
   ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
 
-   <img src="https://i.postimg.cc/R0G0z66p/mutinyagainsquareextra.png" width="50%" align="left"/>
+   <img src="https://i.postimg.cc/sxJz5bPD/mutinyagainsquareextra.png" width="50%" align="left"/>
 &nbsp; &nbsp; &nbsp; &nbsp;
-   <img src="https://i.postimg.cc/1zK8572t/asset3bigger.png" 
+   <img src="https://i.postimg.cc/mk4RzTHq/asset3bigger.png" 
       width="30%" 
       align="center"/> 
 
@@ -54,7 +54,8 @@ $\color{#b893e5}{\textsf{DO NOT copy or inspo from ANY of my ponies ‎ ‎   �
 $\color{#b893e5}{\textsf{whisp 2 int! i love 2 chat but i miss whisps often ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ ‎  ‎ ‎ }}$</h4>
 <br> 
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
-  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
+  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ <br>
+
 <h4 align="left">$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ i'm jst one alter in a system}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ if u friend me on pt, u may not always b talking 2 me}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ iffy w/ sourcemates so ask b4 talking abt source stuff. source doubles dni unless completely detached}}$<br>
