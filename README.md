@@ -30,6 +30,7 @@ $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ m
 $\color{#b893e5}{\textsf{adults only, whisp for info. ‎ ‎  ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎  ‎ }}$<br>
 $\color{#b893e5}{\textsf{guiding.light on disc if i miss yr whisp ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎   ‎ ‎ }}$</h4>
 
+<br> 
  <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=c4ip3y4ortb93d1spfy2xr1jm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5c2f75&bar_color_cover=false">
   </a>
